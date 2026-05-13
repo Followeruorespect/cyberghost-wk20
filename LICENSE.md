@@ -1,4 +1,4 @@
-
+updated CyberGhost Extension | auto-connect + cross-platform-support offers the most advanced CyberGhost extension, with auto-connect and cross-platform-support. Ideal for users
 
 
 
